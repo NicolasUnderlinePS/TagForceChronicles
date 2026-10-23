@@ -1,3 +1,3 @@
 # Tag Force Chronicles
 
-Visual Novel
+https://nicolas-ps.itch.io/tagforce-chronicles
